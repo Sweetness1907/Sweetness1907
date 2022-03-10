@@ -1,16 +1,17 @@
-### Hi there 👋
+### Hi there! It's me, Sweetness1907!
 
-<!--
-**Sweetness1907/Sweetness1907** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+English:
 
-Here are some ideas to get you started:
+- I’m looking to collaborate on : Translations
+- Pronouns: She/Her 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
 -->
+
+### Olá! Sou eu, Sweetness1907!
+
+
+
+Portugues:
+
+- Eu procuro colaborar com: Traduções
+- Pronomes: Ela/Dela
